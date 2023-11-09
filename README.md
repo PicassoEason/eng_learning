@@ -7,7 +7,10 @@
 ldoceonline https://www.ldoceonline.com/
 搭配詞典 https://ozdic.com/
 
-## 書單
+## 影片學習
+
+搞笑版 https://youtu.be/PNIPSkyDYS0?si=XTgVKLFz33drV-g4
+官方正式 https://youtu.be/u9cggZHjwS4?si=jcqOAHi24Nce286B
 
 
 
