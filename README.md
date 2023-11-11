@@ -16,7 +16,8 @@ ldoceonline https://www.ldoceonline.com/
 官方正式 https://youtu.be/u9cggZHjwS4?si=jcqOAHi24Nce286B
 <br>
 弱底心得 https://www.dcard.tw/f/english_tests/p/240611711
-
+<br>
+https://www.dcard.tw/f/exam/p/253699079
 
 
 ## 雅思書單
