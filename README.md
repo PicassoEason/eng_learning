@@ -20,6 +20,10 @@ ldoceonline https://www.ldoceonline.com/
 https://www.dcard.tw/f/exam/p/253699079
 <br>
 https://www.dcard.tw/f/language/p/239318872
+<br>
+關於單字
+https://www.dcard.tw/f/language/p/236260956
+
 ## 雅思書單
 
 ### 高手區
